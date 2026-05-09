@@ -1,10 +1,16 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤaquarius, aquarius!
-
+<p align="center">
+“ aquarius , aquarius ! ”
 <p align="center">
 <img width="650" height="330" alt="49dc987b8802ce7dabc964f8d0e87c6b" src="https://github.com/user-attachments/assets/e58ac61c-e485-4514-ac85-70afa75525d6" />
 
-‎‎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[main rentry](https://rentry.co/westeast)ㅤ𓈒ㅤ[shared rentry](https://rentry.co/psistillhateyou)ㅤ𓈒ㅤ[pronouns.cc](https://pronouns.cc/@kudoshinichi)
+<p align="center">
+  <a href="https://rentry.co/westeast">main rentry</a>ㅤ𓈒ㅤ
+  <a href="https://rentry.co/psistillhateyou">shared rentry</a>ㅤ𓈒ㅤ<a href="https://pronouns.cc/@kudoshinichi">pronouns.cc</a>
+</p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ponytown info](https://rentry.co/blownupcave)ㅤㅤㅤㅤ𓈒🌻𓈒ㅤㅤㅤㅤㅤ[atabook](https://nightwing.atabook.org/)
+<p align="center">
+  <a href="https://rentry.co/blownupcave">ponytown info</a>ㅤㅤㅤㅤ 𓈒🌻𓈒ㅤㅤㅤㅤㅤ<a href="https://nightwing.atabook.org/">atabook</a>
+</p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ i love you, sagittarius!
+<p align="center">
+“ i love you , sagittarius ! ”
