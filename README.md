@@ -6,3 +6,5 @@
 ‎‎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [main rentry](https://rentry.co/westeast)ㅤ𓈒ㅤ[shared rentry](https://rentry.co/psistillhateyou)ㅤ𓈒ㅤ[pronouns.cc](https://pronouns.cc/@kudoshinichi)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ponytown info](https://rentry.co/blownupcave)ㅤㅤㅤㅤㅤ𓈒ㅤㅤㅤㅤㅤ [atabook](https://nightwing.atabook.org/)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ i love you, sagittarius!
