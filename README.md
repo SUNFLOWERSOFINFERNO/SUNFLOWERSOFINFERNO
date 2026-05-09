@@ -1,5 +1,4 @@
 <p align="center">
-  
-<img width="720" height="300" alt="a9ca60f1df8a2c259f5e1cf7838ab42e" src="https://github.com/user-attachments/assets/6db18f72-a350-4a44-8352-33cff74be696" />
+<img width="650" height="330" alt="49dc987b8802ce7dabc964f8d0e87c6b" src="https://github.com/user-attachments/assets/e58ac61c-e485-4514-ac85-70afa75525d6" />
 
 ‎‎　 ‎　 ‎　 ‎　 ‎　‎　‎　‎　‎　‎‎　 ‎　 ‎　 ‎　 ‎　‎　‎　‎　‎　‎　 ‎　 ‎　 ‎‎‎remaking when i dont feel lazy
