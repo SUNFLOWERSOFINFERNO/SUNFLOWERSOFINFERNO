@@ -1,5 +1,5 @@
 <p align="center">
-“ and jane , you're early , your life's work is dirtied by the fools who adore you . ”
+“ watch the sky turn when the bomb drops , ”
 
   ㅤ
 <p align="center">
@@ -18,4 +18,4 @@ kenton or allenㅤ𓈒ㅤhe/it
 
 ㅤ
 <p align="center">
-“ only to find , only to find you out . ”
+“ hear the world cheer when my heart stops . ”
