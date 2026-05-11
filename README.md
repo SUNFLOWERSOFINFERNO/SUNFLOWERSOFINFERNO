@@ -1,7 +1,6 @@
 <p align="center">
-“ watch the sky turn when the bomb drops , ”
+“ what i'll give is more than words , ”
 
-  ㅤ
 <p align="center">
 kenton or allenㅤ𓈒ㅤhe/it
 <p align="center">
@@ -16,6 +15,5 @@ kenton or allenㅤ𓈒ㅤhe/it
   <a href="https://rentry.co/blownupcave">ponytown info</a>ㅤㅤㅤㅤ 𓈒🌻𓈒ㅤㅤㅤㅤㅤ<a href="https://kudoshinichi.atabook.org/">atabook</a>
 </p>
 
-ㅤ
 <p align="center">
-“ hear the world cheer when my heart stops . ”
+“ wedding rings sourced from saturn . ”
